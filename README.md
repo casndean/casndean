@@ -7,7 +7,7 @@
 ・・・・・・・・・・・・・・・・・・・・・・・・・
 
 
-　　　　　　　[𝓂ain](https://github.com/jabbeerr)⠀⠀⊹⠀⠀[𝓅rns](https://en.pronouns.page/@castheangel) ⠀⊹ ⠀[𝒶ta](https://huggybear.atabook.org/)
+　　　　　　　[𝓈trawpage](https://casndean.straw.page/)⠀⠀⊹⠀⠀[𝓅rns](https://en.pronouns.page/@castheangel) ⠀⊹ ⠀[𝒶ta](https://huggybear.atabook.org/)
 
 
 ・・・・・・・・・・・・・・・・・・・・・・・・・
